@@ -1,0 +1,1 @@
+# 4ve5-in-kuvvetlerini-yazma
